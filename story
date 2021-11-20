@@ -1,0 +1,1 @@
+once , there lived a monkey on the banks of river. one day , an crocodile came empty stomach and asked it for food. the monkey gave him grapes to eat. he ate it and took it to his wife. she asked the foolish croc to bring the monkey so that they could eat his heart.
